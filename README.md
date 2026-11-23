@@ -12,4 +12,4 @@ This gives us a two-axis model — the Clade Matrix — where every relationship
 intersection of type and depth. Violation of trust is then not merely a social failure but a psychic
 event: either a learning pang necessary for individuation, or the work of a parasitic complex that
 feeds on integration without doing the work of achieving it.
-© Kelly Spitzer, 2026
+© Kelly Spitzer d/b/a Versebloom Press, 2026
